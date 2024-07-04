@@ -9,7 +9,7 @@ Meu nome é Mariana Correia
   
   profmari.correia@gmail.com
   
-  ![](linkedin.com/in/mariana-c-17b245103)
+  [Linkedin](linkedin.com/in/mariana-c-17b245103)
   
   @profmari.correia
 
