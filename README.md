@@ -8,8 +8,10 @@ Meu nome é Mariana Correia
   ### Você pode entrar em contato comigo 📫
   
   profmari.correia@gmail.com
-
+  
+  ![](linkedin.com/in/mariana-c-17b245103)
+  
   @profmari.correia
 
-  ![](https://tenor.com/XbYL.gif)
+![](https://tenor.com/XbYL.gif)
   
